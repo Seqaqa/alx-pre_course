@@ -1,1 +1,1 @@
-I am going to really learn software engineering to the fullest readme
+my name is Ramokhethi Rampeta,ALX software engineer in the making readme
